@@ -1,1 +1,0 @@
-# techie.github.io
